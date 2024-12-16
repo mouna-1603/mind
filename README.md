@@ -1,2 +1,2 @@
 # mind
- mind is very important
+ mind is very important and good
